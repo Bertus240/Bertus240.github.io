@@ -1,3 +1,5 @@
-# memecoinwebsite
+# Dalma 
 
-HTML Website template easy to customize Watch video how to 👉 https://youtu.be/rUESMC_H1IM Join my Telegram 👉 https://t.me/automatecrypto Twitter 👉 https://twitter.com/techaddict0x
+The first Dalmatian-themed memecoin 🤍🖤 ! Join the DALMA movement and revolutionize memecoins 🐶💎 ! 
+
+Telegram : https://t.me/Dalma_Inu
